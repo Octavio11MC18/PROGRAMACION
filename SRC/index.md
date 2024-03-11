@@ -1,1 +1,1 @@
-Muy buenaed gente! edoy un hombre edimple
+Muy buenaed gente! edoy un hombre simple
